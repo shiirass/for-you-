@@ -1,3 +1,3 @@
 # for-you-
-aku suka kamu tapi sebagai teman, canda 
+aku suka kamu(bercanda sih tapi mau serius ayoo)
 
